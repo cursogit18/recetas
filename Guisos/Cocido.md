@@ -4,7 +4,7 @@ Ingredientes (4 personas):
 1 muslo de pollo
 200 g de chorizo
 1 morcilla de cebolla
-150 g de tocino
+200 g de tocino
 80 g de jamón
 1 hueso de jamón
 2 zanahorias
@@ -21,7 +21,7 @@ Ingredientes (4 personas):
 1 muslo de pollo
 200 g de chorizo
 1 morcilla de cebolla
-150 g de tocino
+200 g de tocino
 80 g de jamón
 1 hueso de jamón
 2 zanahorias
